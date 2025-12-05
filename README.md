@@ -306,7 +306,7 @@ Special thanks to:
 
 Made with ❤️ by **>Kodebuds Research and Development**
 
-Email :  kodebuds@gmail.com | Join Discord :  https://discord.gg/yZ67gDD2
+Email :  kodebuds@gmail.com | Join Discord :  https://discord.gg/nVJRvQbUr2
 
 Happy ------>koding!
 
